@@ -1,1 +1,0 @@
-# sehat_khoj
